@@ -22,13 +22,7 @@
   * Ann tried GitHub
  * Ann wrote a story
  
-  
-  
-  
-  
-  
-  
-  
+## Definitions
 
 ### Takoje-etakoje
 Takoje-etakoje is something pleasant unusial/rarely used by yourself (food, drinks, music, cases and even people)  which gives you diversity in life
